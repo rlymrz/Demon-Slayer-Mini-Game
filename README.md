@@ -1,1 +1,1 @@
-Arlyka Mariz
+Arlyka
